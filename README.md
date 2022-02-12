@@ -1,4 +1,4 @@
-### Hi there 👋 I am Bask01!!!
+### Hi there 👋 I am Kubra Bas!!!
 
 <!--
 **Bask01/Bask01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
